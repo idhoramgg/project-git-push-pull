@@ -2,8 +2,8 @@
 
 This project is aimed to exercise git push and pull in github.
 
-ssstttttt
+ainfoainfoainfoiajg awdawdad
 
-sttttttt
+alaijfi ajgoiahhoaigh awdawdawd
 
 abcde
